@@ -1,0 +1,1 @@
+Under CS Portfolio you can find my completion certificates and documents for several projects and classes I've taken regarding Cybersecurity. Under Certificates will be some of the main core certificates I've earned.# Projects-Certifications
